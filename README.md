@@ -1,6 +1,6 @@
 # 💫 About Me:
 Just a guy who likes badminton,cats and programming<br>
-Member @amFoss Amrita
+Member @amFOSS Amrita
 
 
 ## 🌐 Socials:
