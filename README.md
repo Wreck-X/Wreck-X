@@ -1,3 +1,2 @@
 # About Me:
-Just a guy who likes badminton,cats and programming<br>
-Member @amFOSS Amrita
+A guy who likes badminton,cats and programming
